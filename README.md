@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Upinel
-- 👀 I’m interested in NFT and Crypto
+- 👀 I’m interested in AI (LLM)
 - 🌱 I’m currently learning EVERYTHING!!!
 - 💞️ I’m looking to collaborate on new creative ideas
 - 📫 How to reach me: upinel@1me2.com
